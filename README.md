@@ -1,1 +1,1 @@
-# Rezolutia
+# SAT
